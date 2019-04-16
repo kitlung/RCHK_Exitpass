@@ -65,10 +65,10 @@ Enter your domain name alias ( which is `exitpass.com` as default).
 
 # Demo
 
-Forbbiden
+[Forbbiden](https://gph.is/g/E1Nr5ra)
 
 ![](https://media.giphy.com/media/ic6dFCpf78auhfssy8/giphy.gif)
 
-Exit and Return
+[Exit and Return](https://gph.is/g/ZlweOLa)
 
 ![](https://media.giphy.com/media/fXzYSOGwy4t66aU3mH/giphy.gif)
